@@ -1,2 +1,2 @@
 # Legacy
-Just learning
+Just learning new things
